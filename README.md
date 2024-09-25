@@ -1,4 +1,4 @@
-<center> hai read moar on my patreon ! js wanted 2 add mor stuff like do not copy or take inspo etc etc. bc my patreon isnt letting me fix shit blehh</center>
+<center> hai read moar on my patreon thats where everything is ! js wanted 2 add mor stuff like do not copy or take inspo etc etc. bc my patreon isnt letting me fix shit blehh</center>
 
 <br></br>
 <center> afk pls stop talking to me in pub chats if u wanna get to knoe me or compliment my ponies , plsplsplss whisp me instead</center>
