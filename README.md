@@ -10,4 +10,4 @@
 <center> https://www.patreon.com/bythorne </center>
 
 
-<center> <img src=(https://media.discordapp.net/attachments/907011345801699351/1290452392470515924/e83f2f7b21665d909b142921f9d82049.png)/> </center>
+<center> <img src=(https://media.discordapp.net/attachments/907011345801699351/1290452392470515924/e83f2f7b21665d909b142921f9d82049.png?ex=66fc82f1&is=66fb3171&hm=68925df535c5ddbf384650dce1d44371f4e0640b843d5b5645ef5ffb9a2a6df9&=&format=webp&quality=lossless&width=622&height=472)/> </center>
