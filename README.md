@@ -10,4 +10,4 @@
 <center> https://www.patreon.com/bythorne </center>
 
 
-<center> <img src=(https://i.pinimg.com/736x/e8/3f/2f/e83f2f7b21665d909b142921f9d82049.jpg)/> </center>
+<center> <img src="https://i.pinimg.com/736x/e8/3f/2f/e83f2f7b21665d909b142921f9d82049.jpg"/> </center>
