@@ -10,4 +10,4 @@
 <center> https://www.patreon.com/bythorne </center>
 
 
-<center> <img src="https://static.wikia.nocookie.net/zoophobia/images/3/34/JayJay_Dylan_Commission_2.JPG/revision/latest/scale-to-width-down/500?cb=20220312221127"/> </center>
+<center> <img src=(https://media.discordapp.net/attachments/907011345801699351/1290452392470515924/e83f2f7b21665d909b142921f9d82049.png)/> </center>
