@@ -4,6 +4,9 @@
 <center> afk pls stop talking to me in pub chats if u wanna get to knoe me or compliment my ponies , plsplsplss whisp me instead</center>
 
 <br></br>
+<center> touch comf plsplsplss cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h</center>
+
+<br></br>
 <center> ohya n im jayjay + split + MANY others irls ^o^ almost all my ponies r me !!!!</center>
 
 <br></br>
