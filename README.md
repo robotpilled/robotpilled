@@ -7,6 +7,9 @@
 <center> touch comf plsplsplss cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h</center>
 
 <br></br>
+<center> sprunki ponies dni im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom. dont send me hate to my strawpage for this thanks sprunki fans for harassing me!</center>
+
+<br></br>
 <center> ohya n im jayjay + split + MANY others irls ^o^ almost all my ponies r me !!!!</center>
 
 <br></br>
