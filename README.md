@@ -10,7 +10,7 @@
 <center> sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom</center>
 
 <br></br>
-<center> ohya n im jayjay + split + MANY others irls ^o^ almost all my ponies r me !!!! (minus any youtubers i make..)</center>
+<center> ohya n im jayjay + split + MANY others irls ^,..,^ almost all my ponies r me !!!! (minus any youtubers i make..)</center>
 
 <br></br>
 <center> use code cscoop >o<</center>
