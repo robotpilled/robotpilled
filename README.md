@@ -14,9 +14,4 @@
 
 <br></br>
 <center> use code cscoop >o<</center>
-
-<br></br>
-<center> https://www.patreon.com/bythorne </center>
-
-
 <center> <img src="https://64.media.tumblr.com/4ddde13c63276cced09c4b228c63ce78/7ffbaf3522202b3c-c1/s2048x3072/18722127f27d84e0e7d451761bb36deeb4243032.jpg"/> </center>
