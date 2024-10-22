@@ -8,6 +8,8 @@
 
 <br></br>
 <center> sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom</center>
+<br></br>
+<center>COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin but that doesnt mean i also like countryhumans or anythin please dni</center>
 
 <br></br>
 <center> ohya n im jayjay + split + MANY others irls ^,..,^ almost all my ponies r me !!!! (minus any youtubers i make..)</center>
