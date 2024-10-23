@@ -4,7 +4,7 @@ hai read moar on my patreon thats where everything is ! js wanted 2 add mor stuf
 afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponies whisp 2 me instead ! ill see it faster
 <br></br>
 >touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
-
+<br></br>
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom
 COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin but that doesnt mean i also like countryhumans or anythin please dni  
 ALSO YOUTUBER IRLS DNI??? YALL WEIRD ITS STINKIN IN HERE WHAT THE FUCKK THOSE R REAL PEOPLE
