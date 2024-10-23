@@ -2,7 +2,7 @@
 hai read moar on my patreon thats where everything is ! js wanted 2 add mor stuff like do not copy or take inspo etc etc. bc my patreon isnt letting me fix shit blehh
 <br></br>
 afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponies whisp 2 me instead ! ill see it faster
-
+<br></br>
 >touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
 
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom
