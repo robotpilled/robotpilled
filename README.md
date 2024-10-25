@@ -4,6 +4,7 @@ hai read moar on my patreon thats where everything is ! js wanted 2 add mor stuf
 afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponies whisp 2 me instead ! ill see it faster
 <br></br>
 touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
+<img src="https://gifcity.carrd.co/assets/images/gallery42/276c8870.gif?v=47652796"/>
 <br></br>
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom
 <br></br>
