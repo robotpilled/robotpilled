@@ -5,7 +5,6 @@ afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponie
 <br></br>
 touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
 <img src="https://gifcity.carrd.co/assets/images/gallery42/276c8870.gif?v=47652796"/>
-<br></br>
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom
 <br></br>
 COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin but that doesnt mean i also like countryhumans or anythin please dni  
