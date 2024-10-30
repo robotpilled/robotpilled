@@ -33,6 +33,9 @@ i like the md panic au, if u hate it so much then block me instead of making a w
   </p>
 <p align="center">
 ohya n im jayjay + split + MANY others irls ^,..,^ almost all my ponies r me !!!! (minus any youtubers i make..)
+    </p>
+<p align="center">
+  review mode is on 4 my strawpage , if ur art or msg didnt go thru thats likely why so leave hate on my ata or whatever idc what u do
   </p>
 <p align="center">
 use code cscoop >o<
