@@ -17,7 +17,7 @@ touch comf , cud me !! i wont usually go up to people first cus im socially anxi
 <img src="https://gifcity.carrd.co/assets/images/gallery42/276c8870.gif?v=47652796"/>
   </p>
   <p align="center">
-sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom
+sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom ALSO GIV REGRETEVATOR THEIR AREA BACK YALL OVERTOOK IT
     </p>
 <p align="center">
 COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin but that doesnt mean i also like countryhumans or anythin please dni unless i int first
