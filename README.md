@@ -1,8 +1,8 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/232bd46fda428753abf10502bb760bb7/239beae2a8b961af-c3/s1280x1920/755b63c948dd2a4736d341638e1ffc6424b85800.pnj"/>
+<img src="https://64.media.tumblr.com/ab3e8904229f0111982bf70d13d2a560/48d654acdb106890-82/s100x200/b3e762186ca62d2af5c799ad83d5a1c6eaefa033.pnj"/>
   </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/a86268795a59b5fd20275c498e0391bb/510c708a7aa4b6d7-98/s2048x3072/ae2ac4b0d61e054066b46c5fd026f3afc9e34e77.pnj"/>
+<img src="https://64.media.tumblr.com/5be87049dbb6b99326067bc04022473d/8742a5525a904cb2-32/s2048x3072/40040085fe609943f49d10751f61953d7a1e1ec9.pnj"/>
   </p>
   <p align="center">
 hai read moar on my patreon thats where everything is ! js wanted 2 add mor stuff like do not copy or take inspo etc etc. bc my patreon isnt letting me fix shit blehh
@@ -14,7 +14,7 @@ afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponie
 touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
    </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/a86268795a59b5fd20275c498e0391bb/510c708a7aa4b6d7-98/s2048x3072/ae2ac4b0d61e054066b46c5fd026f3afc9e34e77.pnj"/>
+<img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv"/>
   </p>
   <p align="center">
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom ALSO GIV REGRETEVATOR THEIR AREA BACK YALL OVERTOOK IT
@@ -26,7 +26,7 @@ COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin
 ALSO YOUTUBER IRLS DNI??? YALL WEIRD ITS STINKIN IN HERE WHAT THE FUCKK THOSE R REAL PEOPLE
   </p>
   <p align="center">
-<img src="https://64.media.tumblr.com/a86268795a59b5fd20275c498e0391bb/510c708a7aa4b6d7-98/s2048x3072/ae2ac4b0d61e054066b46c5fd026f3afc9e34e77.pnj"/>
+<img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv)"/>
   </p>
 <p align="center">
 i like the md panic au, if u hate it so much then block me instead of making a whole scene ab it right infront of me like im not a person ! i relate heavily to both nyx and niko in it and i am 100% fine if u dont like it. u can have an opinion. just dont be big n loud ab it in my face :/
@@ -44,5 +44,5 @@ ohya n im astro + split + MANY others irls ^,..,^ almost all my ponies r me !!!!
 use code cscoop >o<
   </p>       
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1079439533323591700/1295393699215183952/image.png?ex=671c54a5&is=671b0325&hm=b5fad02de3d5de935aa0e6dbc105ef5f01b6834a4108f8fca6420e3d45a494e2&=&format=webp&quality=lossless&width=520&height=345"/>
+<img src="https://64.media.tumblr.com/14a217316af335c68b87081eb6e50715/4baf6cac9e1510f5-87/s250x400/cb0ff61aa4713a150121b4ebaffdcdad41a3d4f6.gifv"/>
 </p>
