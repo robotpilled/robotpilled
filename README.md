@@ -26,7 +26,7 @@ COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin
 ALSO YOUTUBER IRLS DNI??? YALL WEIRD ITS STINKIN IN HERE WHAT THE FUCKK THOSE R REAL PEOPLE
   </p>
   <p align="center">
-<img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv)"/>
+<img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv"/>
   </p>
 <p align="center">
 i like the md panic au, if u hate it so much then block me instead of making a whole scene ab it right infront of me like im not a person ! i relate heavily to both nyx and niko in it and i am 100% fine if u dont like it. u can have an opinion. just dont be big n loud ab it in my face :/
