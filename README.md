@@ -13,6 +13,8 @@ afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponie
 <p align="center">
 touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
    </p>
+   <p align="center">
+astro + kazper + many others irl ^_^ almost all my ponies r me muehehe .. minus any youtubers i make ofc
 <p align="center">
 <img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv"/>
   </p>
@@ -34,9 +36,6 @@ i like the md panic au, if u hate it so much then block me instead of making a w
   <p align="center">
 i DO NOT. support dandys world devs OR play the game at all. its a boring game to me, i only like the character designs cus they r cute. dont come to me ab "erm i expected better" I DONT SUPPORT DEVS AND I DONT PLAY. I DONT MAKE FANART EITHER
   </p>
-<p align="center">
-ohya n im astro + split + MANY others irls ^,..,^ almost all my ponies r me !!!! (minus any youtubers i make..)
-    </p>
 <p align="center">
   review mode is on 4 my strawpage , if ur art or msg didnt go thru thats likely why so leave hate on my ata or whatever idc what u do
   </p>
