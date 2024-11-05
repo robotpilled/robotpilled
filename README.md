@@ -1,8 +1,8 @@
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery135/c6aa41fb.gif?v=47652796"/>
+<img src="https://64.media.tumblr.com/232bd46fda428753abf10502bb760bb7/239beae2a8b961af-c3/s1280x1920/755b63c948dd2a4736d341638e1ffc6424b85800.pnj"/>
   </p>
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery42/276c8870.gif?v=47652796"/>
+<img src="https://64.media.tumblr.com/a86268795a59b5fd20275c498e0391bb/510c708a7aa4b6d7-98/s2048x3072/ae2ac4b0d61e054066b46c5fd026f3afc9e34e77.pnj"/>
   </p>
   <p align="center">
 hai read moar on my patreon thats where everything is ! js wanted 2 add mor stuff like do not copy or take inspo etc etc. bc my patreon isnt letting me fix shit blehh
@@ -14,7 +14,7 @@ afk wont respond to pub chats , if u wanna get to knoe me or compliment my ponie
 touch comf , cud me !! i wont usually go up to people first cus im socially anxious sniffs so please ff to c+h
    </p>
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery42/276c8870.gif?v=47652796"/>
+<img src="https://64.media.tumblr.com/a86268795a59b5fd20275c498e0391bb/510c708a7aa4b6d7-98/s2048x3072/ae2ac4b0d61e054066b46c5fd026f3afc9e34e77.pnj"/>
   </p>
   <p align="center">
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom ALSO GIV REGRETEVATOR THEIR AREA BACK YALL OVERTOOK IT
@@ -26,7 +26,7 @@ COUNTRYHUMANS FANDOM DNIUID PLEASE !! the netherlands pony i made is a comf skin
 ALSO YOUTUBER IRLS DNI??? YALL WEIRD ITS STINKIN IN HERE WHAT THE FUCKK THOSE R REAL PEOPLE
   </p>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery42/276c8870.gif?v=47652796"/>
+<img src="https://64.media.tumblr.com/a86268795a59b5fd20275c498e0391bb/510c708a7aa4b6d7-98/s2048x3072/ae2ac4b0d61e054066b46c5fd026f3afc9e34e77.pnj"/>
   </p>
 <p align="center">
 i like the md panic au, if u hate it so much then block me instead of making a whole scene ab it right infront of me like im not a person ! i relate heavily to both nyx and niko in it and i am 100% fine if u dont like it. u can have an opinion. just dont be big n loud ab it in my face :/
