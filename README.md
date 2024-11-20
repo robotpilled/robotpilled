@@ -15,6 +15,9 @@ touch comf , cud me !! i wont usually go up to people first cus im socially anxi
    </p>
    <p align="center">
 astro + kazper + many others irl ^_^ almost all my ponies r me muehehe .. minus any youtubers i make ofc
+     <p align="center">
+hreh cringe selfshippr,, smg4 is my f/o SKIDADDLES AHH AHHGH
+   </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv"/>
   </p>
@@ -34,7 +37,7 @@ ALSO YOUTUBER IRLS DNI??? YALL WEIRD ITS STINKIN IN HERE WHAT THE FUCKK THOSE R 
 i like the md panic au, if u hate it so much then block me instead of making a whole scene ab it right infront of me like im not a person ! i relate heavily to both nyx and niko in it and i am 100% fine if u dont like it. u can have an opinion. just dont be big n loud ab it in my face :/
   </p>
   <p align="center">
-i DO NOT. support dandys world devs OR play the game at all. its a boring game to me, i only like the character designs cus they r cute. dont come to me ab "erm i expected better" I DONT SUPPORT DEVS AND I DONT PLAY. I DONT MAKE FANART EITHER
+i DO NOT. support dandys world devs OR play the game at all. its a boring game to me, i only like the character designs cus they r cute. dont come to me ab "erm i expected better" I DONT SUPPORT DEVS AND I DONT PLAY !!!!
   </p>
 <p align="center">
   review mode is on 4 my strawpage , if ur art or msg didnt go thru thats likely why so leave hate on my ata or whatever idc what u do
