@@ -25,7 +25,7 @@ i am objectum btw so if u dont like that u definately not like or even hate me !
 <img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv"/>
   </p>
   <p align="center">
-pleas dont follow me if ur following like. a shit ton of github accs (more than 200) i woud appreciate it if u followed for reasons OTHER than just to follow. id rather anyone who genuinely likes me or thinks im cool to follow instead of these side/spam accs , thank u 
+pleas dont follow me if ur following like. a shit ton of github accs (1k+) i woud appreciate it if u followed for reasons OTHER than just to follow. id rather anyone who genuinely likes me or thinks im cool to follow instead of these side/spam accs , thank u 
   </p>
   <p align="center">
 sprunki ponies dniuf im number one gatekeeper incredibox is my fixation i dont like the sprunki fandom ALSO GIV REGRETEVATOR THEIR AREA BACK YALL OVERTOOK IT
