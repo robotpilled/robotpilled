@@ -18,6 +18,9 @@ astro + kazper + many others irl ^_^ almost all my ponies r me muehehe .. minus 
      <p align="center">
 hreh cringe selfshippr,, smg4 is my f/o SKIDADDLES AHH AHHGH
    </p>
+   <p align="center">
+i am objectum btw so if u dont like that u definately not like or even hate me ! i kiss objects oooh so bad and evil
+   </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/58fd293a7c740a5c-77/s500x750/6f6871cc39a241f44b64fd453681ee56c17ed2fd.gifv"/>
   </p>
