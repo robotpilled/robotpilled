@@ -29,6 +29,8 @@ selfshipper !! nonsharing sorry,, smg43 + fandom iwc?
 fan + astro + gr13fer + many others irl
 <br>
 im afk offtab almost all the time, pls whisp me instead i also hav a touch comf so ff2cud/cuddpile anytime even if im sitting w sum1 C:
+<br>
+I LUV STAMPS !!! I LAUV STAMPS CAN U TELL. C
 
 <p align="center"
   
