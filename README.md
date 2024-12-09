@@ -20,6 +20,8 @@ hihello ! no longer use patreon so everything will be moved here, itll b a yap s
 <br>
 bpdtistic - when i say iwc *i mean it*
 <br>
+yes i am a hh/hb fan, i dont support viv ALSO #1 STOLAS HATER
+<br>
 if u couldnt tell i luv christmas + bunnies,,
 <br>
 irl buny boy, if u see me online js knoe this who ur talking 2 !! -> ![.](https://64.media.tumblr.com/54b510d0279221e4ca2e0fece5f372b5/cf492c2ab0c22fbd-fb/s75x75_c1/e39f604e787e657242f9ca8e8af53925ecd6d91b.gifv)
